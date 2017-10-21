@@ -1,0 +1,2 @@
+# Founders - Illinois Entreprenuers Wiki
+The official Founders - Illinois Entreprenuers at the University of Illinois at Urbana-Champaign wiki. Please go to the Wiki tab to see all the relevant information.
